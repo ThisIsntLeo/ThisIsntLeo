@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ZiIsANerd
+- 👋 Hi, I’m Leo
 - 👀 I’m interested in computers and technolgy
 - 🌱 I’m currently learning Japanese
 - 📫 How to reach me: macoslover@icloud.com 
